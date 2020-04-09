@@ -1,2 +1,0 @@
-# aaradhyavollala.github.io
-website
